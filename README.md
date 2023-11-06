@@ -10,6 +10,14 @@
 ![WhatsApp Image 2023-11-06 à 17 08 58_5e43e3b7](https://github.com/Hajarita12/TpRepository/assets/120518556/5a6ead66-b16d-4ccc-96c7-b269bc67a16b)
 ![WhatsApp Image 2023-11-06 à 17 10 48_1aaa5d64](https://github.com/Hajarita12/TpRepository/assets/120518556/22a8d20f-a982-4b42-b8f9-58e35abbcfee)
 ![WhatsApp Image 2023-11-06 à 17 11 46_7c37169f](https://github.com/Hajarita12/TpRepository/assets/120518556/efd7c22b-c946-4de3-a3ba-bd96b3a18857)
+![image](https://github.com/Hajarita12/TpRepository/assets/120518556/669c9fc2-8048-4c10-b71b-7652a018f3f8)
+![image](https://github.com/Hajarita12/TpRepository/assets/120518556/161147d9-bcdc-4cd3-893e-85ae6f11aac4)
+![image](https://github.com/Hajarita12/TpRepository/assets/120518556/6820dc09-c230-49b7-b77a-3b9d0ec69c43)
+![image](https://github.com/Hajarita12/TpRepository/assets/120518556/f84bd219-61c2-4361-a345-4fa120bde66a)
+
+
+
+
 
 
 
